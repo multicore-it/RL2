@@ -2,7 +2,7 @@
 
 ---
 
-## ➡️ 강의 바로가기: [강의 바로가기](https://inf.run/1SfgZ)
+## ➡️ [강의 바로가기](https://inf.run/1SfgZ)
 
 ---
 
